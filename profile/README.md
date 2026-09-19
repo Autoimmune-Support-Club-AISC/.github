@@ -110,3 +110,12 @@ Something practical, collaborative, and genuinely useful to the people it is mea
 ### Focus
 
 **Autoimmune disease · Chronic illness · Patient support · Patient advocacy · Patient experience · Healthcare education · Medical gaslighting awareness · Health innovation**
+
+### Contact and social media
+
+AISC.care@gmail.com
+@Autoimmunesupportclub https://www.instagram.com/autoimmune_support_club
+https://linktr.ee/aisc.care
+https://www.youtube.com/@AutoimmuneSupportClub
+https://www.threads.com/@autoimmune_support_club
+https://www.linkedin.com/company/aisc_care/
