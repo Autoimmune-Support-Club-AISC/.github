@@ -4,7 +4,7 @@
 
 We started AISC on **September 21, 2024**, founded by **Angel P. and Abdul Aleem Jaseer**.
 
-What began as a small idea has grown considerably since then — into a community, a volunteer network, and a growing body of work focused on **patient experiences, autoimmune awareness, healthcare education, advocacy, and innovation**.
+What began as a small idea has grown considerably since then, into a community, a volunteer network, and a growing body of work focused on **patient experiences, autoimmune awareness, healthcare education, advocacy and innovation**.
 
 ## Why AISC exists
 
